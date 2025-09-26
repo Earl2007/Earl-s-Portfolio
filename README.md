@@ -1,2 +1,2 @@
-# Earl-s-Portfolio
+# EARL's Portfolio
 Job Lifeline
